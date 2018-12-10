@@ -6,3 +6,6 @@
 * Gears of wars
 * Plants vs Zombies
 * Grand Theft Auto
+* Halo
+* Halo II
+
