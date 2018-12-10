@@ -8,4 +8,5 @@
 * Grand Theft Auto
 * Halo
 * Halo II
+* Destiny
 
