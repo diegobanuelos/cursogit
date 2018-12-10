@@ -14,4 +14,4 @@ Juegos en ATARI
 
 ---
 
-> Work Hard, Play Hard - Unknown
+> Work Hard, Play Hard - Unknown.
