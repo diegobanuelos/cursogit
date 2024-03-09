@@ -1,0 +1,3 @@
+# PS5
+
+PlayStation 5 (プレイステーション 5 Pureisutēshon Faibu?, abreviada como PS5) es la quinta consola de videojuegos de sobremesa desarrollada por la empresa Sony Interactive Entertainment, a la vez que es la tercera consola de Sony en ser diseñada por Mark Cerny. Fue anunciada en diciembre de 2019 como la sucesora de la PlayStation 4. Se lanzó el 12 de noviembre de 2020 en Australia, Japón, Nueva Zelanda, Estados Unidos, Canadá, México y Corea del Sur, y en la semana siguiente en el resto del mundo. La PlayStation 5 junto con la Xbox Series X|S de Microsoft, lanzada el mismo mes, son parte de la novena generación de consolas de videojuegos.
