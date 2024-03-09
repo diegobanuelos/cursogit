@@ -1,0 +1,5 @@
+# Playstation 2
+
+PlayStation 2 (en japonés: プレイステーション2 Pureisutēshon Tsu, oficialmente abreviada como PS2) es la segunda videoconsola de sobremesa descontinuada producida por Sony Computer Entertainment. Fue la tercera consola de Sony en ser diseñada por el japonés Ken Kutaragi. Además de ser la sucesora de la PlayStation.
+
+Fue lanzada por primera vez el 4 de marzo del año 2000 en Japón, y unos meses después en el resto del mundo. Es la videoconsola más vendida de la historia, con más de 155 millones de unidades vendidas.3​4​5​ Esta consola es también la que más títulos posee, aproximadamente 3870 títulos, seguida por su predecesora la PlayStation con unos 2500 títulos. Esta cantidad de títulos se debe a la extraordinaria acogida por parte del público en general hacia la misma, lo que incluso la consolidó como la consola con más tiempo en el mercado y a su vez la consola con más duración en el mismo, hasta que el 4 de enero del año 2013 se decide detener su fabricación tras 13 años de actividad.6​ A pesar del anuncio, se continuaron produciendo nuevos juegos para la consola hasta finales de 2013, estos fueron FIFA 14 y Pro Evolution Soccer 2014.
