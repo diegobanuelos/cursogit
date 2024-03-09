@@ -1,0 +1,4 @@
+# PolyStation
+PolyStation es el nombre dado a muchos clones en hardware de la Nintendo Entertainment System cuyo aspecto exterior se asemeja al de las consolas PlayStation,1​ particularmente al de la primera consola de la marca, ya que hace uso de cartuchos, donde la ranura de estos sistemas se encuentra debajo de la tapa que, en una PlayStation original, cubre la unidad de disco. La gran mayoría de estos clones son originarios de China.2​
+
+Las realizadas bajo el modelo de carcasa PlayStation no es la única en imitar dicha consola con clones, igual hay muchas otras, entre ellas la PS2, PS3, Xbox,3​ PC MASTER, etc.
