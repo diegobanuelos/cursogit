@@ -1,0 +1,6 @@
+# Playsation
+
+![Playstation](https://es.wikipedia.org/wiki/Archivo:PlayStation_logo_and_wordmark.svg)
+
+**PlayStation** (プレイステーション Pureisutēshon?, comúnmente abreviado como PS) es el nombre de una serie de consolas de videojuegos creadas y desarrolladas por Sony Interactive Entertainment. Han estado presentes en la quinta, sexta, séptima, octava y novena generación de videoconsolas; la compañía promotora está actualmente en el mercado con su PlayStation 5.
+
